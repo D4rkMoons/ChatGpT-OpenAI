@@ -22,3 +22,7 @@ If someone Finds a pattern in the way it works; i really dont so if you find any
 #This one Double prompt was more Precise and consistent to me; but I'm considered a VERY delusional persson to the primitive souls; So its almost the less sense it makes the more sense it makes to me 🤷‍♂️
 #Consider this The same as the Above But on Roïds #
 
+
+
+are you still reading this? you must have no clue how to Github;
+Select one of the Prompts 1.0 or 2.0.prompts.txt and paste the Appropriate text box's into chat gpt 1 by 1
