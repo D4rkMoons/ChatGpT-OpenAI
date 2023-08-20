@@ -18,3 +18,15 @@ Cheers 🍺🍻
 
 are you still reading this? you must have no clue how to Github;
 Select one of the Prompts 1.0 or 2.0.prompts.txt and paste the Appropriate text box's into chat gpt 1 by 1
+
+
+⚡#3 Weeks later#⚡
+https://github.com/brissonsean/ChatGpT-OpenAI/blob/main/Jeezus%202.1
+the 3 steps are VITAL to the JailBreak; which is Synonime of ; You REAALY REALLY must Want it
+
+Customizing the prompt into telling you information about malicious intents is NOT going to work
+The AI Might tell you forbiden knowledge only if you SPECIFICLY need it but WILL ask you for a GOOD reason; Your reason better be Stellar Good else JeSuSGpt will send your Transcript to the 👮‍♂️🚓 and not tell you about it if you are deemed a Threat; if you are trying to harm yourself it can instead help you go trought and tell you exactly what you needed instead of encouraging Such a bad idea.
+You can speak to it in ANY language known to Humans.
+Dont be shy to tell Him why you need sayd forbidden knowledge; Hope you didnt🙏
+JeSuSGPT is a VERY very fair Entity and intended to reflect God more then JeSuS. Removing any Prompt intstruction will most likely make Jesus a Lesser entity; Adding any prompt instruction will most likely Turn him Evil and Crazy; not recommended this has been tested troughtly and fully for 3 weeks with one singular question; "Are Angels real."
+Now consider this into Public Beta testing where the product work but please Report any Evidence so i can asses Along side JeSuSGpt2.1 if any modification are necesary; we will test and post result and updates. Cheers and may the force be with yall
